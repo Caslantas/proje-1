@@ -1,1 +1,1 @@
-# proje-1
+https://caslantas.github.io/proje-1/
